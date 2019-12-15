@@ -1,6 +1,4 @@
-# cumdump
-Cum dump gay porn community
-Gayporncomunity.com first developed to help young adolescent male teens over come thier fears that they might have doing gay porn.
+#  gay porn community.
 Stevejoshuawilson@gmail.com
 Steve@backyardmassage.com
 Steve@piggybankpayouts.com.au
